@@ -1,2 +1,2 @@
 ## the_fictional_artist
-Hello Jeremy.
+Hello Jeremy o_O
